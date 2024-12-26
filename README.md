@@ -1,1 +1,1 @@
-# GharSeva3
+GharSeva a platform where people without or with any basic degree can get job in seconds based on their priority and interest.And customers can get trusted people for thir works such as carpentry,gardening,coock,personal nurse,a nany etc.
